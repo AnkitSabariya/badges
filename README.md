@@ -1,2 +1,2 @@
 # badges
-# 2 badge
+# 2 badgee
